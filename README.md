@@ -1,2 +1,5 @@
 # chril_exe
-things
+sup gang
+i just test my bad skills
+one day...everybody will hear my name
+<h1>remember that!</h1>
